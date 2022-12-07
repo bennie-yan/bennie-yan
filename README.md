@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @bennie-yan
-- 👀 I’m interested in 。。。
-- 🌱 I’m currently learning the freshman courseS in SJTU JI. 
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning the freshman courses in SJTU JI. 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me  MY Gmail: bennie315yan@gmail.com
 -  
